@@ -1,1 +1,1 @@
-# -16_dars_javoblari
+Assalomu Alaykum! 16-mashq javoblari
